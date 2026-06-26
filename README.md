@@ -6,7 +6,8 @@
 
 ## 🌙 Sobre a Autora
 
-Olá! Meu nome é **Park Moondae** e estou presa no mundo da imaginação. 
+Olá! Meu nome é **Park Moondae**.  Tenho 20 anos, e eu amor escrever. 
+Sou um pouco preguiçosa, e minha escrita não é a melhor de todas. Só farei o que desejo, e colocando minha imaginação em palestras.
 
 *Bem-vindo ao reino onde o inverno nunca termina e as estações dançam apenas na capital.*
 
@@ -16,42 +17,30 @@ Olá! Meu nome é **Park Moondae** e estou presa no mundo da imaginação.
 
 ### O Mundo
 
-**Lemel** é um vilarejo esquecido pelo tempo, coberto por um inverno eterno. A primavera o visita apenas uma vez a cada ano — um breve suspiro de esperança antes que o frio retorne impiedoso. Lá vive uma família nobre que carrega segredos tão profundos quanto o próprio inverno.
+**Lemel** é um vilarejo que ficar ao norte de Calendor, coberto por um inverno eterno. A primavera o visita apenas uma vez a cada ano — um breve suspiro de esperança antes que o frio retorne impiedoso.
 
-**Calendor**, a capital radiante, conhece todas as estações do ano. É um refúgio de luz e ouro, onde a magia flui diferente, onde os príncipes caminham entre flores que nunca morrem.
+**Calendor**, o reino dos leões. Coberta por campos floridos, onde todas as estações o alcançar. Seu chão cobertor de ouro, onde nobres e plebeus podem andar. Calendor o reino das muralhas de ouro.
 
 ### A Trama
 
-A história segue **Victor Legrand**, filho do Duque de Lemel — um jovem que carrega a maldição de ser um vilão. Consumido pela inveja e pela fúria, Victor comete um ato imperdoável: mata sua própria irmã. Mas o destino não o permite escapar. O Príncipe Herdeiro o encontra e, em um confronto mortal, Victor é executado.
+A história segue **Victor Legrand**, filho do Duque de Lemel — um jovem consumido pela inveja e pela fúria, Victor comete um ato imperdoável: mata sua própria irmã. Mas o destino não o permite escapar. O Príncipe Herdeiro o encontra e, em um confronto mortal, Victor é executado.
 
 Então tudo muda.
 
 Victor desperta três anos no passado. Uma segunda chance. Uma maldição disfarçada de graça.
 
-Desesperado para reescrever seu destino trágico, Victor tenta fugir de Lemel. Mas seu pai, Lionel Legrand, tem outros planos. O jovem é enviado para **Calendor** — para a corte real, onde o destino tece uma trama ainda mais complexa.
-
-Lá, Victor encontra novamente aquele que o matou: **Henry Galen**, o Príncipe Herdeiro de cabelos ruivos como fogo e olhos de turquesa penetrante.
-
-Inimigos.
-
-Mas enquanto os dias passam nos salões dourados de Calendor, algo inesperado floresce entre o vilão e o príncipe. Uma atração proibida. Um amor que deveria ser impossível. Porque eles ainda são inimigos — Victor carrega o peso de seu futuro sombrio, e Henry não sabe que o homem ao seu lado é aquele que ele matou.
-
-> *"Mesmo que você tenha me levado a morte, e eu tenha voltado para buscar um novo destino. Talvez meu caminho seja realmente você."*
-
-*Será que o amor pode reescrever o que o tempo já condenou?*
+Desesperado para reescrever seu destino trágico, Victor tenta fugir de Lemel. Mas o destino e os campos floridos de Calendor.
 
 ---
 
 ## 🎭 Galeria de Personagens
 
-### Victor Legrand — O Vilão que Viaja no Tempo
+### Victor Legrand
 **Idade:** 18 anos
 
 Um jovem de beleza etérea e assustadora. Seus cabelos e cílios são brancos como a neve de Lemel, contrastando dramaticamente com seus olhos azuis profundos — tão claros que parecem guardar segredos ancestrais. Veste-se com minimalismo refinado: camisas brancas com mangas levemente bufantes, coletes pretos de gola alta com correntes ornamentais, calças pretas justas. Sua paleta é monocromática — preto, branco e cinza — refletindo a dualidade de sua natureza. 
 
 Victor é discreto, sofisticado e moderno, como um nobre que carrega consigo o fardo de um futuro já escrito. Mas há algo em seu olhar que sugere que ele conhece um destino que ninguém mais consegue ver.
-
-*Protagonista. Vilão. Vítima do próprio tempo.*
 
 ---
 
@@ -64,8 +53,6 @@ Ele usa um uniforme militar real que fala de poder: casaco branco com detalhes d
 
 Henry é o príncipe que poderia ter tudo — poder, beleza, destino — mas encontra em Victor algo que seus outros privilégios nunca lhe deram.
 
-*O herdeiro. O matador. O amor impossível.*
-
 ---
 
 ### Liam Galen — O Príncipe Sensível
@@ -77,8 +64,6 @@ Veste-se com cerimônia e elegância: um uniforme real com tons de azul-marinho,
 
 Liam é a sensibilidade entre a força bruta, o príncipe que escolhe com o coração.
 
-*O irmão. O romântico. O par de Brian.*
-
 ---
 
 ### Brian Silmus — O Servo Dedicado
@@ -88,11 +73,9 @@ Cabelos escuros e olhos castanho-dourados que guardam lealdade inquebrantável. 
 
 Brian é a sombra constante de Liam, o coração gentil que escolheu amar ao invés de apenas servir. Há uma graça em sua humildade que o torna tão real quanto qualquer príncipe.
 
-*O servo. O amante. A lealdade personificada.*
-
 ---
 
-### Louise — A Noiva Elegante
+### Louise — A devotada 
 **Idade:** 23 anos
 
 Cabelos loiro claro que caem como um véu dourado. Olhos verdes que marcam presença em qualquer sala — claros, luminosos, mas com uma profundidade que nem sempre reflete o que pensa.
@@ -100,8 +83,6 @@ Cabelos loiro claro que caem como um véu dourado. Olhos verdes que marcam prese
 Ela veste um vestido de gala luxuoso: corpete azul escuro justo com amarrações na frente, blusa de renda branca transparente com gola alta, mangas bufantes amplas. A saia é extremamente volumosa, camadas e camadas de branco interno. Uma sobre-saia azul degrada para tons mais claros na barra, bordada com flores delicadas, estrelas e galhos. Adornos em formato de asas brancas completam sua silhueta etérea.
 
 Louise é a noiva prometida de Henry — elegante, real, perfeita. Ou seria?
-
-*A noiva. O mistério. A...?*
 
 ---
 
@@ -123,9 +104,4 @@ Esta história está em **desenvolvimento ativo**. Novos capítulos estão sendo
 
 ## 🌟 Bem-vindo a Moonlandia
 
-Bem vindo a Moonlandia, que minha imaginação leve vocês a conhecer mundos maravilhosos.
-
----
-
-**Park Moondae** ✨  
-*Presa no mundo da imaginação*
+Escrevendo mundos que me levam a loucura. Amores trágicos, que não permitem a felicidade os alcançarem.
