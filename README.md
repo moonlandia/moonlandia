@@ -78,8 +78,7 @@ Criada para ser o retrato da perfeição, ela aprendeu desde cedo a caminhar com
 
 ## 📱 Leia a História
 
-🔗 https://www.wattpad.com/story/410203344-a-corrente-do-destino
-
+🔗 [Leia minha história no Wattpad](https://www.wattpad.com/story/41023344-a-corrente-do-destino)
 ---
 
 ## ⏳ Status
