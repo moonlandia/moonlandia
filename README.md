@@ -6,7 +6,7 @@
 
 ## 🌙 Sobre a Autora
 
-Olá, Cookies! Meu nome é **Park Moondae**. Tenho 20 anos e comecei a escrever em 2022.
+Olá, Cookies! Meu nome é **Moondae**. Tenho 20 anos e comecei a escrever em 2022.
 Minha escrita talvez ainda não seja a mais bonita, mas, a cada história, procuro me tornar uma autora melhor. Escrevo no meu próprio ritmo — às vezes a preguiça vence algumas batalhas —, mas jamais desistirei de dar vida aos mundos e personagens que habitam minha imaginação.
 Não há muito o que dizer sobre mim. Sou apenas alguém que encontrou refúgio entre páginas em branco, vivendo entre a realidade e a fantasia. Enquanto houver uma história esperando para ser contada, continuarei escrevendo, um capítulo de cada vez.🤍
 
